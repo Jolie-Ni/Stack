@@ -13,7 +13,8 @@ For people who multi-task like crazy: the kind who kick off five background agen
 
 <br>
 
-<img width="650" height="400" alt="image" src="https://github.com/user-attachments/assets/abf5c070-cc1c-4e36-9321-82e74413f6be" />
+<img width="1249" height="816" alt="image" src="https://github.com/user-attachments/assets/63785fcf-7911-4a2b-b108-d4ad2254ac1f" />
+
 
 <br>
 
